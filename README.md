@@ -1,2 +1,2 @@
-![Image](https://github.com/user-attachments/assets/4176c592-1c81-4921-a4c4-b946e36e0981)
-lumine w apple cand is my art
+![Image](https://github.com/user-attachments/assets/c11bf4c9-c83e-4c3b-ad0e-7a3f9f6c0ceb)
+Me and my wife
